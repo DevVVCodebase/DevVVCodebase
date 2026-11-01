@@ -32,7 +32,7 @@ Aspiring cybersecurity professional building my foundation in programming, netwo
 
 ## 📫 Connect
 
-- LinkedIn: 
+- LinkedIn: www.linkedin.com/in/vasudev-verma-825517330
 - Email: vasudevverma141@gmail.com
 
 ---
